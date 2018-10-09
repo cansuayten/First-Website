@@ -1,1 +1,0 @@
-# cansuayten.github.io
